@@ -19,3 +19,21 @@ Prove you can sell.
 Go to agencies working for brands not directly brands for being more effective.
 
 Attention is easy to catch. It's hard to keep.
+
+---
+
+Most creators don't fail because they're bad at content. They fail because they don't understand money.
+
+viral content != sustainable money
+
+Be Professional Creator
+Ex:- Cleo Abram
+
+Mr. Beast
+Har video ke andar ek chiz better ki. Improving
+
+---
+
+The Monetisation map
+ 
+Clean Beautiful Professional Content Banana chahiye 
